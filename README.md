@@ -3,11 +3,11 @@
 
 - **busco aprender sobre linguagens de programação e afins💻💕**
 
-- **e-mail para contato**: matheusalberti2007@gmail.com
+- **e-mail para contato**📱: matheusalberti2007@gmail.com
 
 - **instagram**😶: alberti_kkj
 
-- **cursando**: 2° Desenvolvimento de Sistemas
+- **cursando**📔: 2° Desenvolvimento de Sistemas
 
 - **jogador de basquete** 🏀
 
